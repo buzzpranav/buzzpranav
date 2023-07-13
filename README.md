@@ -1,4 +1,4 @@
-### Hi there 👋 | My name is Pranav S Narayanan, and I'm a 16 year old AI Developer!
+### Hi there 👋 | My name is Pranav S Narayanan, and I'm a 17 year old AI Developer!
 
 ### Technologies
 
